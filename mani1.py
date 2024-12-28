@@ -1,1 +1,0 @@
-welcoe to gietu ;
